@@ -1,0 +1,2 @@
+# malumatfurus.github.io
+Malumatfuruş
